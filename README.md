@@ -1,0 +1,5 @@
+- 👋 Hi, I’m Stephanie
+- 👀 I’m interested in dogs, museums, kayaking, and hiking
+- 🌱 I’m currently learning about WWII
+- 💞️ I’m looking to collaborate on anything interesting
+- 📫 How to reach me ... stephanie.honore@kw.com
